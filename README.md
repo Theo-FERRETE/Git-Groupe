@@ -1,3 +1,3 @@
 Theo Ferrete
 James Dalin
-Anziz Dahalali
+Anziz Dahalani
